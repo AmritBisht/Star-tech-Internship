@@ -1,1 +1,1 @@
- Star-tech-Internship
+starttech Academy Internship
